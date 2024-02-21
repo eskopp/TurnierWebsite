@@ -1,1 +1,1 @@
-# Ilmenauer Open
+# Vereinsmeisterschaft 2024
